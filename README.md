@@ -1,5 +1,5 @@
 
-![me4]([https://github.com/NayrouzTarik/NayrouzTarik/assets/107729348/827eeb7a-7ca3-4e50-b272-d3579a69503e](https://i.gifer.com/9viJ.gif))
+![me4](![9viJ](https://github.com/NayrouzTarik/NayrouzTarik/assets/107729348/e359762e-ba73-49a2-87e9-92be0968e4d0))
 
 [![ntarik's 42 stats](https://badge.mediaplus.ma/darkgray/ntarik)](https://github.com/oakoudad/badge42)
 
