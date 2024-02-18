@@ -1,6 +1,6 @@
 
 ![](https://i.pinimg.com/originals/38/a0/cc/38a0cc030a73b8592057bd7d01bfd56d.gif)
-HEY WELCOME 
+
 [![ntarik's 42 stats](https://badge.mediaplus.ma/darkgray/ntarik)](https://github.com/oakoudad/badge42)
 
 - 📫 How to reach me **ntarik.loukili@gmail.com**
